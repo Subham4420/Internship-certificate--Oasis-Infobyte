@@ -1,1 +1,1 @@
-# Internship-certificate--Oasis-Infobyte
+# Internship-certificate issued by Oasis-Infobyte
